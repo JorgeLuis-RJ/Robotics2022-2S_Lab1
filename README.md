@@ -12,3 +12,5 @@ El proceso inició con la misma creación de la herramienta idonea para cumplir 
 
 
 Video: <https://youtu.be/sd_temmxu-0>
+
+Video: <https://youtu.be/GyQLNigyGNM>
